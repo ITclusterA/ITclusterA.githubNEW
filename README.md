@@ -1,2 +1,1 @@
-# ITclusterA.githubNEW
-NEW version
+# oksankaslukrnet.github.io
